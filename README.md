@@ -1,3 +1,3 @@
 # Hello-World
 My first Ripository on GitHub
-i Love :photography: :games:, and :Excercise:.
+I Love :photography: :games:, and :Excercise:.
